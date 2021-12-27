@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Pavan.R
-- 👀 I’m interested in VLSI DOMAIN
+- 👀 Interested in VLSI DOMAIN
 - 🌱 I’m currently pursuing my B.Tech in PES UNIVERSITY
 
 
